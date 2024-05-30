@@ -1,7 +1,5 @@
-- 👋 Hi, I’m @DrFeelBoring
-- 👀 I’m interested in ... about anything
-- 🌱 I’m currently a student at ... UCI
-- 😄 Pronouns: ... she/her
+heyyy !!
+she/her
 
 
 <!---
