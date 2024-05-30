@@ -1,5 +1,4 @@
-heyyy !!
-she/her
+hey, feel free to talk about just anything :)
 
 
 <!---
