@@ -1,4 +1,6 @@
-hey, feel free to talk about just anything :)
+hey, feel free to talk about just anything
+
+---I NEED FRIENDS :') ---
 
 
 <!---
