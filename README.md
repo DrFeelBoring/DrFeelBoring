@@ -1,6 +1,6 @@
 hey, feel free to talk about just anything
 
----I NEED FRIENDS :') ---
+---looking for new friends :') ---
 
 
 <!---
